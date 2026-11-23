@@ -6,7 +6,7 @@ i miss not caring what others think, what happened
 
 then again im stuck in here with ~19 other minds, perhaps our thoughts are overlapping again
 
-it’s alright, its okay, dont cry,  were in this together . there’s brighter days ahead 
+it’s alright, its okay, do cry, it will only hurt more if its kept back ,  were in this together . there’s brighter days ahead 
 
 
 this is for anyone. no matter what happens out there, you are loved. 
