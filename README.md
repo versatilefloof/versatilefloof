@@ -15,3 +15,7 @@ putting this here for anyone who may need it. dont give up! keep pushing!
 
 
 -Amaru. caregiver and mediator of the floofy operating system 
+
+
+final aknowledgement of what ever tf is going on 
+https://docs.google.com/document/d/13_WeNnmlE5l7FSTjEovwoW5p5UK7tAselsc4h9MUhZ4/edit?usp=drivesdk
